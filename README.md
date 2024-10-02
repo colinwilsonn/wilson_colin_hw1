@@ -1,5 +1,9 @@
+# Gabe & Colin's Homework 1 
+
 # wilson_colin_hw1
-Gabe & Colin's Homework 1
+ 
+
+
 # Patino_gabriel_hw1
 
 # family backgroud
