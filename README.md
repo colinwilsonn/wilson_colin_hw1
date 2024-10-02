@@ -1,6 +1,6 @@
 # wilson_colin_hw1
 Gabe & Colin's Homework 1
-# Gabriel_Patino_hw1
+# Patino_gabriel_hw1
 
 # family backgroud
 My family background is vast with my grandparents being able to trace their roots to small nobility in colonial Spain and captured slaves from west central Africa. I was born in Medellin Colombia Oct 19, 2002 where I would spend the first 10 years of my life being raised in a small neighbourhood called Malibu, before moving to London Ontario Canada in late 2012 where I remain until now. 
