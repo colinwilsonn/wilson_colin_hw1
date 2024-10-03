@@ -29,3 +29,5 @@ I maintain a varied range of hobbies and interests including fashion, design, ph
 I’ve developed a wide variety of skills over the years including conventional leadership, crisis management, costumer service, sales, creative planning, creative directing, networking, problem solving, conflict resolution &  deescalation skills. 
 # What’s next 
 I aim to further expand on my practical skills including picture & video editing, film & photo production, design, coding and website development, as well as working on developing A more in-depth understanding of business practices development and branding as I work to build solid foundations for future plans and endeavours.
+
+![patino_gabriel pic of wwe star](https://github.com/user-attachments/assets/3c88889d-2866-46f9-8a59-e33653657f2e)
