@@ -17,6 +17,8 @@ I’ve developed a diverse skill set, especially in: Graphic Design & Branding: 
 # What’s next 
 I’m focused on building up my skills to improve the way I serve clients and deepen my knowledge in an industry that I’m truly passionate about. I also plan to expand my network, making valuable connections with peers and using those relationships to grow and create new opportunities.
 
+![picture of me sitting in a chair](https://github.com/colinwilsonn/wilson_colin_hw1/blob/main/images/wilson_colin_pic.jpeg?raw=true)
+
 # Patino_gabriel_hw1
 
 # family backgroud
